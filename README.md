@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sandhya Gupta
+- 👀 I’m interested to learn new things
+- 🌱 I’m currently learning  .net and java
+- 💞️ I’m looking to collaborate on .net technology
+- 📫 call me at this number **9368319780** if you need to connect or mail me at this email id **sandhya9780@gmail.com** 
